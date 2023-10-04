@@ -1,1 +1,2 @@
+Even though I'm not much of a photographer, I enjoy snapping photos of curious objects and anything else that fascinates me in my environment. As soon as I had a phone, I started taking lots of photos. I believe I have a decent chance to present this image and get feedback from the public. Basically, I want to make a website where customers can view my photos and perhaps even make purchases..
 # A02
